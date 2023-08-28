@@ -1,2 +1,1 @@
-# chitvantrivedi.github.io
-# Chitvan Trivedi
+# chitvantrivedi.github.io Chitvan Trivedi
